@@ -6,6 +6,6 @@ Hi, I'm Chan - a sophomore student in the Faculty of Information and Communicati
 therefore it would be useful if we could gain any data insights to improve their lives as well as business growth.😼
 
 ## Get in touch
-- Discord: ```!Chan#2297``` (24/7 Active)
+- Discord: ```Chan#0777``` (24/7 Active)
 - Linkedin: https://www.linkedin.com/in/ariya-phengphon/
 - Facebook: https://www.facebook.com/profile.php?id=100001777535707
