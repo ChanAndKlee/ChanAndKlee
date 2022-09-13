@@ -7,4 +7,4 @@ Hi, I'm Chan - a junior student in the Faculty of Information and Communication 
 ## Get in touch
 - Discord: ```Chan#0777``` (24/7 Active)
 - Linkedin: https://www.linkedin.com/in/ariya-phengphon/
-- Facebook: https://www.facebook.com/profile.php?id=100001777535707
+- Email: ariya.phe@student.mahidol.ac.th (or personal: 10950ariya@gmail.com)
